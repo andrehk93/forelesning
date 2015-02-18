@@ -1,0 +1,4 @@
+# forelesning
+Notater?
+
+HALLA
